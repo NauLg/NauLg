@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### ✨ Some day my lazy half will be defeated by my productive one! ✨
 <!--
 **NauLg/NauLg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
